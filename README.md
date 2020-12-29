@@ -7,4 +7,4 @@ and all the programs demostate the use of mathematics in the Machine leanring mo
 ###### Contact:
 for further clarification and discusstion : hari20002010@gmail.com
 
-[Hariharan](sites.google.com/view/hariharan20)
+[Hariharan](https://sites.google.com/view/hariharan20)
